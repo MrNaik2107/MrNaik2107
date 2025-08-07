@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MrNaik2107
 - 👀 I’m interested in Hacking
-- 🌱 I’m currently learning senior secondary school
+- 🌱 I’m graduated
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
